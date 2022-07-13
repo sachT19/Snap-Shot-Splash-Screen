@@ -1,2 +1,2 @@
 # Snap-Shot-Splash-Screen
-new app?
+upgrade only for $99.99 a month
